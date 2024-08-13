@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SahilSyed
-- 👀 I’m interested in Data Science.
+- 👀 I’m interested in Data Analyst.
 
 - 📫 You can reach me through my --> linkedin profile(https://www.linkedin.com/in/syed-sahil-a65748238/)
                                   --> Instagram profile(@syed_sahil490)
